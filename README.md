@@ -19,4 +19,5 @@ pro futuro eu quero começar a fazer uma falculdade, e assim poder trabalhar na 
 ![](https://media1.tenor.com/m/tF7QYiNQc4sAAAAd/merry-christmas-wrecking-ball.gif)
 
 
-!][(
+![](https://media.tenor.com/3B7feutfPogAAAAM/claire-dancing.gif)
+
